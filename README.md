@@ -1,1 +1,1 @@
-started coding today or maybe it was yesterday
+as Conso awoke one morning from uneasy dreams he found himself transformed in his bed into a coder
