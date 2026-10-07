@@ -1,2 +1,1 @@
-# log1
-first time coding
+started coding today or maybe it was yesterday
